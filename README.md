@@ -9,5 +9,6 @@ Meu nome é Gabrielli Dina
 ### Você pode entrar em contato comigo 📧
 
 djatsygabrielli@gmail.com
+
 ![](https://tenor.com/bxo8SALSbIv.gif)
 
