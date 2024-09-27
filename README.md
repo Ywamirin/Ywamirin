@@ -10,4 +10,4 @@ Meu nome é Gabrielli Dina
 
 djatsygabrielli@gmail.com
 ![](https://tenor.com/bxo8SALSbIv.gif)
-https://tenor.com/bxo8SALSbIv.gif
+
